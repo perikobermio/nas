@@ -1,1 +1,1 @@
-<h1>Kaixo peña</h1>
+<h1>Kaixo mundua</h1>
